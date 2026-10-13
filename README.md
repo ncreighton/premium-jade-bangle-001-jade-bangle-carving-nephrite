@@ -1,0 +1,2 @@
+# premium-jade-bangle-001-jade-bangle-carving-nephrite
+Struggling to transform raw nephrite into a flawless, glossy bangle without chipping or wasting precious stone?  This comprehensive craft studio unlocks the ancient art of jade bangle carving, guiding you from rough slab to polished heirloom. With step-by-step techniques tailored specifically for tough nephrite, you'll avoid common cracks and achie
